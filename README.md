@@ -1,2 +1,2 @@
-# 5-fatos-sobre-o-naufragio-do-titanic
+# 5 Ffatos Sobre o Naufrágio do Titanic.
 O famoso navio foi perdido no mar durante sua viagem inaugural ao atingir um iceberg. 
